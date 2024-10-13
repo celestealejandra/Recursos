@@ -1,2 +1,2 @@
 # Recursos
-Recursos varios
+Recursos varios ⋆˙⟡ —
